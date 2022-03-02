@@ -1,3 +1,3 @@
 # abhijithab
  my personal website
-jump in now https://ababhijith.github.io/abhijithab/
+jump in now https://www.abhijith.me
